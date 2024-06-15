@@ -17,7 +17,7 @@ Technical Skills:
 
 
 
-
+My Portfolio : https://wjoodaleissa.my.canva.site :)
 
 Contact Me :
 
